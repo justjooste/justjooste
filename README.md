@@ -1,4 +1,4 @@
-## Hey, I'm Danny. 👋 
+## Hey, I'm Darren. 👋 
 I'm from New Zealand. I like fitness, good food, and coding. Feel free to ask me about anything gym related :muscle:
 
 ### Reach me
